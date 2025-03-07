@@ -1,1 +1,3 @@
-so basically this repo is just for basic use and callback for a few test themes I want to implement with the permission from the creator of the Zehn theme for millennium
+ima be so fr here
+i have been trying for about 3 hours straight to find out how this person did this... bro this shit is a fucking puzzle, he's got these cryptic ahh links that lead to image sources that aren't even public and when you try to replace them it lierally just goes... nah not today
+so i'm just gonna wait for yurisuika to possibly reach back out to me to keep going
